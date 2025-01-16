@@ -1,0 +1,1 @@
+# Lenovo_ideapad_330s_hackintosh-sequoia-_EFI
